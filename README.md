@@ -1,3 +1,7 @@
+**LOGISTICS**
+Due in Five Checkpoints over the course of two months.
+
+
 ACADEMIC INTEGRITY
 -----
 Please review the University of Illinois Student Code before starting,
